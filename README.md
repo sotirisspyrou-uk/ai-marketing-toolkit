@@ -3,7 +3,7 @@
 
 *Comprehensive AI marketing automation showcase for technical marketing leadership*
 
-**Created by [Sotirios Spyrou](https://www.linkedin.com/in/sspyrou/)** | *Updated: December 2024*
+**Created by [Sotiris Spyrou](https://www.linkedin.com/in/sspyrou/)** | *Updated: December 2024*
 
 ---
 
